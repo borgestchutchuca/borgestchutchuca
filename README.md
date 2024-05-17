@@ -1,8 +1,6 @@
-Boas vindas ao meu perfil 💗
-Meu nome é Eduarda Borges
+Me chamo Eduarda Borges :)
 
-- Moro em Salesópolis
+- Moro em Salesópolis 🇧🇷
 - Tenho 17 anos
-- 
-  ![]([link](https://i.gifer.com/Aq.gif))
 
+![](https://media1.tenor.com/m/mpM226xHdO4AAAAd/kiss.gif)
